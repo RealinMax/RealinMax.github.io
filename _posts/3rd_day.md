@@ -4,9 +4,9 @@ title:  "Do what scares you"
 ---
 
 ## Do you want to know how to overcome your fears? Just do it scared.
-h2 What is the thing that you are most afraid to say or do?
-h2 I challenge you to do it today.
-h2 This is how you live your life to the fullest.
+## What is the thing that you are most afraid to say or do?
+## I challenge you to do it today.
+## This is how you live your life to the fullest.
 h2 If you have something that feels true to your heart, let it out.
 h2 Being scared should not be the sign to stop.
 h2 In fact, the bigger your goal is, the more you are supposed to feel scared.
