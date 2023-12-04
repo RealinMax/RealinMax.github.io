@@ -3,7 +3,7 @@ layout: single
 title:  "Do what scares you"
 ---
 
-h2 Do you want to know how to overcome your fears? Just do it scared.
+## Do you want to know how to overcome your fears? Just do it scared.
 h2 What is the thing that you are most afraid to say or do?
 h2 I challenge you to do it today.
 h2 This is how you live your life to the fullest.
