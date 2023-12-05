@@ -2,9 +2,9 @@
 title:  "Do what scares you"
 ---
 
-### English Writing : Day 3
+## English Writing : Day 3
 
-#### Do What Scares You
+### Do What Scares You
 
 Do you want to know how to overcome your fears? Just do it scared.\
 What is the thing that you are most afraid to say or do?\
