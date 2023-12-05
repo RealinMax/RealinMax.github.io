@@ -1,7 +1,10 @@
 ---
-layout: single
 title:  "Do what scares you"
 ---
+
+H3 English Writing : Day 3
+
+H4 Do What Scares You
 
 Do you want to know how to overcome your fears? Just do it scared.\
 What is the thing that you are most afraid to say or do?\
