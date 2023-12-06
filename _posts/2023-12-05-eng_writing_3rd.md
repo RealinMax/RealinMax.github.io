@@ -19,6 +19,6 @@ Do what you're meant to do.\
 Be willing to feel scared.\
 Then, you will not be scared of that anymore.\
 You'll find another thing that makes you scared.\
-The more you repeat this process, the more you can create an amazing life.\
+The more you repeat this process, the more you can create an amazing life.
 
-#### 소스 : 영어 필사 100일의 기적
+#### 출처 : 영어 필사 100일의 기적
