@@ -15,4 +15,4 @@ Are there any changes you want to see in the world?\
 Go ahead and spread your messages everywhere.\
 Don't worry if it's not original enough.\
 Why? First, even if it's already been said or done a million times, it hasn't been done with your personality.\
-Second, there are some people in the world who are destined to listen to your emssages.\
+Second, there are some people in the world who are destined to listen to your emssages.
