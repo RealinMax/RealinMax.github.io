@@ -1,5 +1,5 @@
 ---
-title:  "Don't Blame The Good Guys"
+Title:  "Don't Blame The Good Guys"
 ---
 
 ## English Writing : Day 5
