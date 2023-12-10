@@ -13,6 +13,6 @@ Maybe you want to be a generous person, but you don't help anyone because you ar
 But even after you get to the top, you'll always be "too busy" to make the time to give someone a hand.\
 If there's something you truly want, be commmitted to it.\
 Do it every day, no matter what.\
-That will make all the difference.\
+That will make all the difference.
 
 #### 출처 : 영어 필사 100일의 기적
