@@ -10,8 +10,7 @@ Write down the list of the things you hate:\
 the toxic environment, the problems you never want to deal with,\
 the irrelevant things that bore you to death.\
 Then, write down the list of things you love on another piece of paper:\
-the kind of work environment you enjoy hustling in, problems that\
-you want to get your hands on, and all the things that grab your attention.\
+the kind of work environment you enjoy hustling in, problems that you want to get your hands on, and all the things that grab your attention.\
 Start from there.\
 Everything that you wrote down will lead to your divine calling.\
 Answering it is up to you. It won't be easy just because it's interesting.\
