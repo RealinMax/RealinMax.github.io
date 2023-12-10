@@ -1,5 +1,5 @@
 ---
-title:  "Be Committed"
+Title:  "Be Committed"
 ---
 
 ## English Writing : Day 8
