@@ -1,5 +1,5 @@
 ---
-title:  "Do What Scares You"
+Title:  "Do What Scares You"
 ---
 
 ## English Writing : Day 3
