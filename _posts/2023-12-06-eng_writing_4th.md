@@ -1,5 +1,5 @@
 ---
-title:  "You Are a Precious Human"
+Title:  "You Are a Precious Human"
 ---
 
 ## English Writing : Day 4
