@@ -1,5 +1,5 @@
 ---
-title:  "Find Your Passion"
+Title:  "Find Your Passion"
 ---
 
 ## English Writing : Day 7
