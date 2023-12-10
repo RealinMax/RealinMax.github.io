@@ -1,5 +1,5 @@
 ---
-title:  "Say This As Today's Affirmations"
+Title:  "Say This As Today's Affirmations"
 ---
 
 ## English Writing : Day 6
