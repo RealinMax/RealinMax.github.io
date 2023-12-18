@@ -15,7 +15,7 @@ Everything is working out fabulaously.\
 I believe I'm already super successful.\
 There is nothing I want to change about my past.\
 I embrace all my flaws, fears, and unstableness.\
-I'm fully confident in my skills to make my goals come tru.\
+I'm fully confident in my skills to make my goals come true.\
 I believe in my bones that anything is possible.\
 I enjoy donig the hard things.
 
