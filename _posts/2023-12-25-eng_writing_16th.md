@@ -15,5 +15,4 @@ Can you imagine how unstoppable you would be if you knew for a fact that you are
 We are designed to be loved unconditionally.\
 Today, I invite you to be a loving friend to yourself.
 
-
 #### 출처 : 영어 필사 100일의 기적
