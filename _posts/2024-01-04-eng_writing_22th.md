@@ -15,6 +15,6 @@ So if you want to rest your mind, just do it.\
 You can read books that nurture your soul, declutter your thoughts by meditating or journaling, listen to a song that puts you at ease, or have a loving conversation with yourself or whoever you believe is the higher power.\
 Decide not to think about what's left undone or unsolved.\
 Actually, happiness is very simple.\
-Start giving yourself what you truly deserve, and you'll have a happier life.\
+Start giving yourself what you truly deserve, and you'll have a happier life.
 
 #### 출처 : 영어 필사 100일의 기적
